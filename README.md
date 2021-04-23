@@ -3,19 +3,20 @@
 <h2 align="center">  CRACKING TOOL </h2>
 
 <p align="center">
-      LATEST FB CRACKING GMAIL & PASSWORD WITHOUT LOGIN
+      LATEST FB CRACKING 
 </p>
 
 
 
 <p align="center">
-  FACEBOOK CRACKER MAIL & PASS
+  FACEBOOK CRACKER USER & PASS
  
 
  <p align="center">
   YOU CAN GET FREE LICENCES APPROVAL 
  
-
+ <p align="center">
+ FB LOGIN > TOKEN/COKKIE
 
 ## <b>installation</b>
 
